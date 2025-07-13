@@ -1,12 +1,12 @@
-# ◈ 𝑯𝑰𝑰 𝑯𝑰𝑰𝑰𝑰𝑰𝑰𝑰, 𝑾𝑬𝑳𝑪𝑶𝑴𝑬 𝑻𝑶 𝑴𝒀 𝑺𝑷𝑨𝑪𝑬! ◈
+<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/60020821-25af-4b3b-af31-1f2ec4d7fe88" />
 
 ---------------------------------------------------------
 
-<img width="960" height="540" alt="image" src="https://github.com/user-attachments/assets/60020821-25af-4b3b-af31-1f2ec4d7fe88" />
+# ◈ 𝑯𝑰𝑰 𝑯𝑰𝑰𝑰𝑰𝑰𝑰𝑰, 𝑾𝑬𝑳𝑪𝑶𝑴𝑬 𝑻𝑶 𝑴𝒀 𝑺𝑷𝑨𝑪𝑬! ◈
 
 --------------------------------------------------------
 
-## ☆ 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘴𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘵𝘪𝘮𝘦 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘵𝘰𝘶𝘤𝘩/𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘮𝘦
+## ☆ 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘧𝘰𝘳 𝘴𝘱𝘦𝘯𝘥𝘪𝘯𝘨 𝘵𝘪𝘮𝘦 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘵𝘰𝘶𝘤𝘩/𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘸𝘪𝘵𝘩 𝘮𝘦 :Đ
 
 ---------------------------------------------------------
 
@@ -16,17 +16,17 @@
 
 ## ☆ 𝘚𝘰𝘮𝘦 𝘪𝘯𝘧𝘰𝘳𝘮𝘢𝘵𝘪𝘰𝘯𝘴 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦:
 
-> ◇.* You can call me Kohi/Deaf or whatever nickname you have for me.
+> ◇.* You can call me Kohi/Deaf or whatever nickname you have for me. ;>
 
 > ◇.* Pansexual
 
 > ◇.* ENFP
 
-> ◇.* I love sleeping and drawing ⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
+> ◇.* I love sleeping and drawing ( especially my octp.. ~I HAVE UNHEALTHY OBSESSION WITH MY OCTP HELP~ )⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
 
-> ◇.* I'm really bad at English and using my words. So if I say something confusing, please tell me so we can it out! ᕙ⁠(⁠＠⁠°⁠▽⁠°⁠＠⁠)⁠ᕗ
+> ◇.* I'm really bad at English and using my words. So if I say something confusing, please tell me so we can make it out! ᕙ⁠(⁠＠⁠°⁠▽⁠°⁠＠⁠)⁠ᕗ
 
-> ◇.* I'm a multiple fandoms person!
+> ◇.* I'm a multiple-fandom person!
 
 > ◇.* There're some fandoms that I'm in: Bungou Stray Dog, Cookie Run Kingdom/Ovenbreak, Kuroshitsuji (Black Butler), Toilet-Bound Hanako-kun, DanDaDan, Mirai Nikki, Evangelion, etc...
 
