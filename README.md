@@ -16,7 +16,7 @@
 
 ## ☆ 𝘚𝘰𝘮𝘦 𝘪𝘯𝘧𝘰𝘳𝘮𝘢𝘵𝘪𝘰𝘯𝘴 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦:
 
-> ◇.* You can call me Kohi/Deaf or whatever nickname you have for me. ;>
+> ◇.* You can call me Kohi/Deaf/PTNH/H or whatever nickname you have for me. ;>
 
 > ◇.* Pansexual
 
