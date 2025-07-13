@@ -30,8 +30,6 @@
 
 > ◇.* There're some fandoms that I'm in: Bungou Stray Dog, Cookie Run Kingdom/Ovenbreak, Kuroshitsuji (Black Butler), Toilet-Bound Hanako-kun, DanDaDan, Mirai Nikki, Evangelion, etc...
 
-> ◇.* I don't really like ship (unless it's a canon one), so consider before talk/int!
-
 ---------------------------------------------------------
 
 <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/7230dc5c-ea9d-473c-b8d4-12c07430e95d" />
