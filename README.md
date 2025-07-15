@@ -14,15 +14,17 @@
 
 ---------------------------------------------------------
 
-## ☆ 𝘚𝘰𝘮𝘦 𝘪𝘯𝘧𝘰𝘳𝘮𝘢𝘵𝘪𝘰𝘯𝘴 𝘢𝘣𝘰𝘶𝘵 𝘮𝘦:
+## ☆ 𝘉𝘠𝘐: 
 
-> ◇.* You can call me Kohi/Deaf/PTNH/H or whatever nickname you have for me. ;>
+> ◇.* You can call me Kohi/Deaf or whatever nickname you have for me. ;>
 
 > ◇.* Pansexual
 
 > ◇.* ENFP
 
-> ◇.* I love sleeping and drawing ( especially my octp.. ~I HAVE UNHEALTHY OBSESSION WITH MY OCTP HELP~ )⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱
+> ◇.* ~Unstable mental~ !
+
+> ◇.* I love sleeping ⁠˖⁠꒰⁠ᵕ⁠༚⁠ᵕ⁠⑅⁠꒱ and drawing ( especially my octp.. ~I HAVE UNHEALTHY OBSESSION WITH MY OCTP HELP~ )
 
 > ◇.* I'm really bad at English and using my words. So if I say something confusing, please tell me so we can make it out! ᕙ⁠(⁠＠⁠°⁠▽⁠°⁠＠⁠)⁠ᕗ
 
@@ -36,22 +38,6 @@
 
 ---------------------------------------------------------
 
-## ☆ 𝘗𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘴𝘵𝘶𝘧𝘧𝘴: 
-
-> ◇.* I might be very slow to respond because I usually/always offtab/afk, so if you want to talk/int with me please w2i!
-
-> ◇.* I love cuddling so feel free to C+H! Even when I'm sitting with my friends or having DNI/DNIUF/DNIUCF/DNIUID status
-
-> ◇.* I spent my time and effort to do my skins/cosplay so please do not copy/take inspire of them!
-
-> ◇.* I mostly online in safe 1, and you can find me in BSD, CRK areas
-
----------------------------------------------------------
-
-<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/58a4300f-884f-4ce2-a8b4-80eae19222d6" />
-
---------------------------------------------------------
-
 ## ☆ 𝘋𝘕𝘐 𝘭𝘪𝘴𝘵:
 
 > ◇.* Homophobic
@@ -63,6 +49,22 @@
 > ◇.* Bodyshamer
 
 > ◇.* Disrespectful toward people's boundaries
+
+---------------------------------------------------------
+
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/58a4300f-884f-4ce2-a8b4-80eae19222d6" />
+
+--------------------------------------------------------
+
+## ☆ 𝘗𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘴𝘵𝘶𝘧𝘧𝘴: 
+
+> ◇.* I might be very slow to respond because I usually/always offtab/afk, so if you want to talk/int with me please w2i!
+
+> ◇.* I love cuddling so feel free to C+H! Even when I'm sitting with my friends or having DNI/DNIUF/DNIUCF/DNIUID status
+
+> ◇.* I spent my time and effort to do my skins/cosplay so please do not copy/take inspire of them!
+
+> ◇.* I mostly online in safe 1, and you can find me in BSD, CRK areas
 
 --------------------------------------------------------
 
