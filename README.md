@@ -62,7 +62,7 @@
 
 > ◇.* I love cuddling so feel free to C+H! Even when I'm sitting with my friends or having DNI/DNIUF/DNIUCF/DNIUID status
 
-> ◇.* I spent my time and effort to do my skins/cosplay so please do not copy/take inspire of them!
+> ◇.* I spent my time and effort to do my skins/cosplay so please do not copy/take inspire of them! (AND DNC MEANS DNC)
 
 > ◇.* I mostly online in safe 1, and you can find me in BSD, CRK areas
 
