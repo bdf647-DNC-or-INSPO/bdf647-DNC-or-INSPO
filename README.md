@@ -30,7 +30,7 @@
 
 > ◇.* I'm a multiple-fandom person!
 
-> ◇.* There're some fandoms that I'm in: Bungou Stray Dog, Cookie Run Kingdom/Ovenbreak, Kuroshitsuji (Black Butler), Toilet-Bound Hanako-kun, DanDaDan, Mirai Nikki, Evangelion, etc...
+> ◇.* There're some fandoms that I'm in: Bungou Stray Dog, Cookie Run Kingdom/Ovenbreak, Kuroshitsuji (Black Butler), Toilet-Bound Hanako-kun, DanDaDan, Mirai Nikki, SaikiK, Clannad, Evangelion, etc...
 
 ---------------------------------------------------------
 
